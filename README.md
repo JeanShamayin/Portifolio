@@ -28,7 +28,7 @@ Dominar programação estruturada em C e iniciar no desenvolvimento de projetos 
 
 ✉️ Onde me encontrar
 
-📩 Você pode adicionar aqui seu LinkedIn, e-mail profissional ou outra rede futuramente
+📩 jean.shamayin@gmail.com // Instagram: @JeanShamayin
 
 🔹 Obrigado por visitar meu perfil!
 Sinta-se à vontade para acompanhar minha jornada e contribuir com sugestões 👇😄
